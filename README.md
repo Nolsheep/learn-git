@@ -1,1 +1,3 @@
-# learn-git
+Kanat Thongniyom 
+Nol
+IG:nolsheep
